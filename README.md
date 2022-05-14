@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @shresthanajus
+- 👀 I’m interested in reverse engineering.
+- 🌱 I’m currently learning by researching in internet.
+- 💞️ I’m looking to collaborate on my running project. 😅 
+- 📫 How to reach me? just mail me.
